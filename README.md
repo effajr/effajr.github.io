@@ -1,1 +1,0 @@
-# effajr.github.io
